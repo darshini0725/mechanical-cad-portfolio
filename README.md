@@ -1,1 +1,0 @@
-# mechanical-cad-portfolio
